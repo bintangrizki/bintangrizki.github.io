@@ -1,1 +1,0 @@
-# bintangrizki.github.io
